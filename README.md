@@ -1,1 +1,1 @@
-# Comparative_Sentences
+# Comparative_Opinions
